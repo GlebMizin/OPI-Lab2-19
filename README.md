@@ -1,3 +1,3 @@
 # OPI-Lab2-19
 Мизин Глеб ПИЖ-б-о-21-1(1) ЛР 2.19
-![](https://cdnn1.ukraina.ru/img/07e6/0c/02/1041436899_0:206:2905:1840_1920x0_80_0_0_c7022893b761781d76fe592010d14bd2.jpg)
+![](https://sun9-68.userapi.com/impg/0I-Zub-hfUmq28oWQ9l5i7tJFRchAvXfzy_6xw/bfUxuA3EnQU.jpg?size=1082x1472&quality=95&sign=bc7bea10f987634bd33dc73b4b53ca6e&type=album)
